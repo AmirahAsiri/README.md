@@ -34,9 +34,18 @@ With TaskMate, users can effortlessly navigate the creation and organization of 
 
 Contributors
 
-	 نجود
+	 Njood Ahmed / 444807892
+
+	Amirah Ahmed / 444806483
+
+	Reham Jaber / 444809251
+
+	Aliawhara Yahva Asiri / 444808261
+
+	Mead Ibrahim / 444814594
 
 to contact us
 
 njwdsyry37@gmail.com
+
 
